@@ -1,1 +1,0 @@
-# Pemrograman_EugellRevaldoEfraim_Copper_TLS26
